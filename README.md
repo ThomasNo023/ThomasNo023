@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @ThomasNo023
-- 👀 I’m interested in boobs
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate on idk
 - 📫 How to reach me idk
